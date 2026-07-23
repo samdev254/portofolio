@@ -1,4 +1,3 @@
-# Developer Samuel
 **Senior Software Engineer** <br/>
 Nairobi, Kenya <br/>
 
